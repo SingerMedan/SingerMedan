@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SingerMedan
+- 👋 Hi, I’m @Singer Medan
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning from youtube
 - 💞️ I’m looking to collaborate on anyone
